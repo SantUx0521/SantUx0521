@@ -2,5 +2,6 @@
 ## System engineer student :)
 
 - 🔭 I’m currently studying on Universidad del valle.
-- 🌱 I’m currently learning Java.
+- 🌱 Very excited on learning new things.
+- Working every day to be a better version of myself.
 - 🤔 English B2.
